@@ -1,0 +1,1 @@
+# mcduckcoin.github.io
